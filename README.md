@@ -1,1 +1,9 @@
 # Tugas-Progress-SBD
+
+NAMA KELOMPOK:
+
+Mochammad Iqbal (1301194472)
+
+I Gde Bagus Janardana A (1301190061)
+
+Muhammad Zaky Al Fatih (1301190445)
